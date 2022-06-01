@@ -1,5 +1,5 @@
  Sobre luis bond :sunglasses:
-- Meu nome é bond, luis bond.
+- Meu nome é bond, steve bond.
 - Eu me interesso em jogos de sobrêvivencia, jogos online como Apex legends :video_game:
 - Gosto de uma boa ação na parte da tarde
 - Gosto muito de ler livros antigos como o dracula, entre outros...
